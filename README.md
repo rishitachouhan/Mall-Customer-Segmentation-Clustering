@@ -60,4 +60,4 @@ https://www.kaggle.com/datasets/vjchoudhary7/customer-segmentation-tutorial-in-p
 
 ---
 
-Feel free to send me your queries at vihasharma1099@email.com
+Feel free to send me your queries at rishitachouhan@icloud.com
